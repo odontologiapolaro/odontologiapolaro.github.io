@@ -1,4 +1,4 @@
-# polaroodonto.github.io
+# odontologiapolaro.github.io
 Nossas Informações Online
 
-#### Clique para acessar: https://polaroodonto.github.io
+#### Clique para acessar: https://odontologiapolaro.github.io
